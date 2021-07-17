@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Jujun28
-- 👀 I’m interested in s 1all about coding
+- 👀 I’m interested in all about coding
 - 🌱 I’m currently learning coding 
 - 💞️ I’m looking to collaborate on whatsapp bot
 - 📫 How to reach me 083829974432
